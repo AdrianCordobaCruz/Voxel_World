@@ -19,7 +19,6 @@ Have fun!
 
 CONTACT INFO:
 
-Twitter: https://twitter.com/AdrianCCDev
 
 LinkedIn: https://www.linkedin.com/in/adri%C3%A1n-c%C3%B3rdoba-cruz-09a243190/
 
